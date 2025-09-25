@@ -25,5 +25,7 @@ also dni if ur a griefer yume.. sorry yall js make me uncomfortable!! nothing ag
 
 ︵‿ ⊹ ︵‿୨ ♡ ୧‿︵ ⊹ ‿︵
 ﹒୨𝑒  1F UR A F1CTIVE OF MY DAD... BRO PLSPLSPSSPLS I MISS MY DAD IM GONNA TWEAAAK. uhh sourcemates int yesyes,,,,,,,,
-just int if ur C00l.. ok bye bleh
+just int if ur C00l.. ok bye bleh. (creds to whoever made all the graphiscs)
+
+<img width="400" height="88" alt="Image" src="https://github.com/user-attachments/assets/59c71806-d648-46a4-a6b9-c9dc7c89c116" />
 
