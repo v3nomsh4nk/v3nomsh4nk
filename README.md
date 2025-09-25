@@ -18,7 +18,8 @@ also i really like 1x1x1x1 from forsaken. hell yeah green :fire:
 
 ︵‿ ⊹ ︵‿୨ ♡ ୧‿︵ ⊹ ‿︵
 ﹒୨𝑒  4G41N, IM TAKEN. DON'T FLIRT WITH ME!!!! also please dont mention the whole venomshank saga, it makes me uncomfortable
-basic dni.. just be a decent person and treat me like a person. no i am not ur favorite character. GO away
+basic dni.. just be a decent person and treat me like a person. no i am not ur favorite character. GO away..
+also dni if ur a griefer yume.. sorry yall js make me uncomfortable!! nothing against yumes th0
 
 ## ⠀ྀི𓎟𓎟⠀⠀⠀PLEASE INT IF....⠀ㅤ｡
 
